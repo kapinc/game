@@ -1,3 +1,2 @@
 # game gg
-# privet narod
-# gg
+# privet narod dgkd
